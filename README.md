@@ -20,9 +20,9 @@
 
 ## 📫 Get in Touch
 
-- 📧 Email: [your.email@domain.com](mailto:your.email@domain.com)
+- 📧 Email: [raulalhaq2004@gmail.com](raulalhaq2004@gmail.com)
 - 🌐 Website/Portfolio: [yourwebsite.com](https://yourwebsite.com)
-- 💼 LinkedIn: [linkedin.com/in/yourname](https://linkedin.com/in/yourname)
+- 💼 LinkedIn: [linkedin.com/in/yourname](https://www.linkedin.com/in/m-raul-al-haq-5970132b1/)
 
 ---
 
