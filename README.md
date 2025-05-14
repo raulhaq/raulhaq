@@ -1,4 +1,4 @@
-# 👋 Hi there! I'm [Your Name]
+# 👋 Hi there! I'm Raul
 
 🎓 I'm a Computer Engineering student at Universitas Syiah Kuala (USK), passionate about building smart, scalable, and meaningful tech solutions.
 
