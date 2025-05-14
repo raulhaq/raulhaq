@@ -22,7 +22,7 @@
 
 - 📧 Email: [raulalhaq2004@gmail.com](raulalhaq2004@gmail.com)
 - 🌐 Website/Portfolio: [yourwebsite.com](https://yourwebsite.com)
-- 💼 LinkedIn: [linkedin.com/in/yourname](https://www.linkedin.com/in/m-raul-al-haq-5970132b1/)
+- 💼 LinkedIn: [linkedin.com/in/m-raul-al-haq-5970132b1](https://www.linkedin.com/in/m-raul-al-haq-5970132b1/)
 
 ---
 
